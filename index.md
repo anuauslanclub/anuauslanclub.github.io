@@ -21,9 +21,9 @@ At the moment, our most regular meetups are our [Auslan Conversation Groups](./d
 
 ### Classes through ANU Auslan Club
 
-The club is currently in the process of organising classes for Semester 2, 2026! 
+The club is currently offering classes for Semester 2, 2026! These will be beginner classes, conducted online and starting in Week 4.
 
-These classes will be conducted online and will run for 6 weeks. To register your interest, please fill out [this form](https://forms.gle/VDhUaRXRHipQmvry6). These classes will only be available to current ANU students.
+For more details including the enrolment process, please see [AAC Auslan Classes](./docs/aac-auslan-classes.html).
 
 ### Local Classes
 
