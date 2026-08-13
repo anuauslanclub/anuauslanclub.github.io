@@ -12,6 +12,8 @@ We are pleased to announce that enrolments are now open for Semester 2, 2026 cla
 
 Spots are limited and classes start next week, so make sure to get in quick!
 
+**Please note that only current ANU students can enrol in these subsidised Auslan classes.**
+
 ## Class Details
 
 Classes start next week (Week 4) and will run with one session per week for six weeks (Weeks 4-9 inclusive). They will not run over the mid-semester break. Students will have the option to enrol in the class running on Wednesdays or Fridays. 
