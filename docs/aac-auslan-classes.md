@@ -8,15 +8,17 @@ description: Information on Auslan Classes as run by the club.
 
 # Auslan Classes through the ANU Auslan Club
 
+The Auslan Club has partnered with [Sign Hear](https://www.signhear.com.au/) to offer online Auslan classes to the ANU community in 2026.
+
 We are pleased to announce that enrolments are now open for Semester 2, 2026 classes! To enrol, you will need to [book in your preferred day](https://outlook.office.com/book/ANUAuslanClub1@ANU365.onmicrosoft.com/?ismsaljsauthenabled) and upon successful booking, pay for the classes through [Rubric](https://campus.hellorubric.com/?tab=memberships&s=6331). Please find more detailed instructions [below](#enrolment-process).
 
-Spots are limited and classes start next week, so make sure to get in quick!
+Spots are limited and classes start this week (Week 4), so make sure to get in quick!
 
 **Please note that only current ANU students can enrol in these subsidised Auslan classes.**
 
 ## Class Details
 
-Classes start next week (Week 4) and will run with one session per week for six weeks (Weeks 4-9 inclusive). They will not run over the mid-semester break. Students will have the option to enrol in the class running on Wednesdays or Fridays. 
+Classes start in Week 4 and will run with one session per week for six weeks (Weeks 4-9 inclusive). They will not run over the mid-semester break. Students will have the option to enrol in the class running on Wednesdays or Fridays. 
 
 Classes will be online, so please ensure that you have a personal device (laptop or tablet) with a working webcam.
 
