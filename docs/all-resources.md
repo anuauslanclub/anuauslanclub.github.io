@@ -87,17 +87,24 @@ Other YouTube channels & vodcasts (video podcasts) about Deaf culture and for Au
 
 ## Social Media
 
+If you follow any influencers who are creating Auslan content, try to make sure they are Deaf or have at least engaged with the Deaf community!
+
 ### Facebook
 
-* [DeafACT](https://www.facebook.com/DeafACT.Canberra/)
+* [DeafACT](https://www.facebook.com/DeafACT.Canberra/) - a group of Deaf and Hard of Hearing people who lobby for and promote Advocacy, Sport and Recreation activities in ACT and surrounding areas.
+* [Deaf Breakfast Canberra](https://www.facebook.com/deaffoodieCBR/) - Held every first Saturday or Sunday of the month. The event has been a All for delicious food, stay for the great company and engaging conversations. Whether you're deaf, hard of hearing, or Auslan users. You're welcome to join us.
 
 ### Instagram
 
 * [latrobeuni_auslan](https://www.instagram.com/latrobeuni_auslan/) - the Auslan teacher for La Trobe University regularly uploads videos for fingerspelling and sign comprehension, as well as new signs to learn!
-* [deafaboriginalservices](https://www.instagram.com/deafaboriginalservices/)
-* [findoutwiththomas](https://www.instagram.com/findoutwiththomas/)
-* [\_laurentoni_](https://www.instagram.com/_laurentoni_/)
-* [oliviabeasleyy_](https://www.instagram.com/oliviabeasleyy_/)
+* [oliviabeasleyy_](https://www.instagram.com/oliviabeasleyy_/) - Olivia posts about Deaf culture and Auslan, as well as some skits and signing songs in Auslan!
+* [awesomeauslan](https://www.instagram.com/awesomeauslan) - Michaela posts Auslan and fingerspelling readback practice videos, as well as interesting facts about Auslan!
+* [authenticauslan](https://www.instagram.com/authenticauslan) - Hayley posts interesting facts and signs in Auslan with example sentences!
+* [deafaboriginalservices](https://www.instagram.com/deafaboriginalservices/) - Joanna posts information and events related to Deaf people, Aboriginal culture, Indigenous Sign Languages and Blak Auslan.
+* [findoutwiththomas](https://www.instagram.com/findoutwiththomas/) - Thomas posts funny skits in Auslan about teaching and Deaf culture!
+* [iamlaurentoni](https://www.instagram.com/iamlaurentoni/) - Lauren posts skits and updates on events or projects she's involved in!
+
++More!
 * [just.auslan](https://www.instagram.com/just.auslan/)
 * [openthatdoor__](https://www.instagram.com/openthatdoor__/)
 * [keepingupwiththecallaghans_](https://www.instagram.com/keepingupwiththecallaghans_/)

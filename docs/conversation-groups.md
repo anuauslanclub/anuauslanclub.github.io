@@ -8,7 +8,7 @@ description: Information on Auslan Conversation Groups as run by the club.
 
 # Conversation Groups
 
-Auslan Conversation Groups are run fortnightly on Saturday mornings from 9:30am in Marie Reay. Sessions run for approximately 2 hours. See our [Rubric page](https://campus.hellorubric.com/?s=6331) for events details.
+Auslan Conversation Groups are run fortnightly during odd weeks (Weeks 1, 3, 5, etc.) on Saturday mornings from 9:30am in Marie Reay. Sessions run for approximately 2 hours. See our [Rubric page](https://campus.hellorubric.com/?s=6331) for events details.
 
 Join for fun conversation, activities and meeting new people in a relaxed and supportive environment!
 
@@ -32,7 +32,7 @@ It is a fairly laidback group and everyone wants to help each other, so please c
 
 **Q: What is the structure of the sessions?**
 
-Generally, the sessions will follow the below basic structure:
+A: Generally, the sessions will follow the below basic structure:
 
 * Sign revision and fingerspelling practice
 * Videos about Deaf history, culture and/or Auslan theory
