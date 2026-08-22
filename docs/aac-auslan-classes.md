@@ -8,7 +8,9 @@ description: Information on Auslan Classes as run by the club.
 
 # Auslan Classes through the ANU Auslan Club
 
-The ANU Auslan Club organises classes at a subsidised fee for ANU students.Currently, the club is running online classes during Semester 2, 2026 during Weeks 4-9. Enrolments are now closed. 
+The ANU Auslan Club organises classes at a subsidised fee for ANU students. 
+
+Currently, the Auslan Club has partnered with [Sign Hear](https://www.signhear.com.au/) to offer online Auslan classes to the ANU community in Semester 2, 2026. Enrolments are now closed. 
 
 We plan to run classes again in Semester 1, 2027.
 
